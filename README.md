@@ -1,0 +1,2 @@
+# ThirdEye-
+Get rich fast
